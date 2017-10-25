@@ -88,3 +88,6 @@ Beneficence, loyalty, protection, and justice are among the many moral considera
 Any such argument for the moral standing of animals might seem too contingent and heavily conditioned to justify animals’ moral standing. Their moral standing seems only to come after persons adopt attitudes about the proper extent of community and the proper content of an environmental ethic.6  However, we should distinguish as much as possible between arguments for what it would take for people to treat animals as they ought from arguments for how people ought to treat animals. Let us take an appeal to dependencies as part of the second sort of argument.
 —Andrew L. Cohen, “Dependent Relationships and the Moral Standing of Non-Human Animals”
 z
+![](lobster.png)
+
+— Consider the Lobster, David Foster Wallace
